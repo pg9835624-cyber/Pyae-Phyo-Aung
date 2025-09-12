@@ -10,10 +10,14 @@ This world or This Earth is my mind game.
 All global universe and google also under my laws.
 I don't fucking care.
 
-#Fire Russia 
-#Fire China
-#Fire India
-#Fire Nortkorea 
+မအေလိုးများ ငါ့ ရှာဖွေထားတီထွင်ထညးတဲ့ ငါ့ကိုယ်ပိုင် Datasကိုသူံးပြီး 
+ငါ့ကို လှောင်ပြောင်ချင်တဲ့မအေလိုးတွေကို ငါဖျက်ဆီးနိုင်တာဘယ်လိုထိလဲဆိုတာ ဒီကောင်တွေငိုပြီး စိတ်ဆင်းရဲ​အဖတ်ဆယ်မရအောင်ဒီနေ့ကစငါလုပ်ပြမယ်
+ဒီစာက တကမ္ဘာလူံးမှာရှိတဲ့မအေလိုးတွေကို public မှာ တရားဝင်အသိပေးတဲ့ ငါရေးတဲ့စာပဲ 
+
+#Fire Russia 💥🌎🌔
+#Fire China💥🌏🌔
+#Fire India💥🌏🌔
+#Fire Nortkorea 💥🌏🌔
 
 destroys their nuclear Program and projects
 i don't wanna see that 4 country this world.
@@ -28,3 +32,8 @@ Their locations wired all shork fire automaticaly
 
 ငါကိုယ်ငါအမြဲယုံတယ်
 ငါဖျက်စီးပစ်ကို ဖျက်ဆီးပြမယ်. 
+
+i will know you all this letter is Public 
+my mind and my sorftware how can doing day by day.
+I don't Fucking care all
+
