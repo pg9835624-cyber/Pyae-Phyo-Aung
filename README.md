@@ -28,12 +28,14 @@ Their locations wired all shork fire automaticaly
 ရုရှား တရုတ် မြောက်ကိုရီးယား အိနိ္ဒယ ဒီမအေလိုး၄နိုင်ငံကို ကမာ္ဘာမြေပေါ်ကနေ အပြီးတိုင်ပျောက်ကွယ်အောင်ငါလုပ်မယ်
 ဒါကျိန်းသေတယ် 
 ငါဘယလုပ်နိုင်လဲဆိုတာအဆူံးထိ ငါယူံကြည်မှူ့တွေနဲ့အတူဒီမအေလိုးနိုင်ငံတွေကိုဖျက်စီးမယ်
+ပိုက်ဆံအတွက်အလုပ်မလုပ်ဘူး
+ဖျက်ဆီးဖို့အတွက် ငါအလုပ်လုပ်သည် 
 
 
 ငါကိုယ်ငါအမြဲယုံတယ်
-ငါဖျက်စီးပစ်ကို ဖျက်ဆီးပြမယ်. 
+ငါဖျက်စီးပစ်ကို ဖျက်ဆီးပြမယ်. 🙂
 
 i will know you all this letter is Public 
 my mind and my sorftware how can doing day by day.
-I don't Fucking care all
+I don't Fucking care all🖕
 
