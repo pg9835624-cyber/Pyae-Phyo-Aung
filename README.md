@@ -20,12 +20,11 @@ i don't wanna see that 4 country this world.
 automatic fire themself Russia China India Nortkorea location.
 Their locations wired all shork fire automaticaly
 
-fuck all this presidents i wanna to see again their face and regions.
+ကိုမေကိုလိုး နိုင်ငံတွေကို ဖျက်ဆီးပစ်မယ်
+ရုရှား တရုတ် မြောက်ကိုရီးယား အိနိ္ဒယ ဒီမအေလိုး၄နိုင်ငံကို ကမာ္ဘာမြေပေါ်ကနေ အပြီးတိုင်ပျောက်ကွယ်အောင်ငါလုပ်မယ်
+ဒါကျိန်းသေတယ် 
+ငါဘယလုပ်နိုင်လဲဆိုတာအဆူံးထိ ငါယူံကြည်မှူ့တွေနဲ့အတူဒီမအေလိုးနိုင်ငံတွေကိုဖျက်စီးမယ်
 
-i can only destroys their programs all projects 
-Missile Aircraf Nuclear Airplane all virus program now.
 
-i don't allow to change climate wealther their location.
-
-i don't want to allow to usings my internet and my own datas all.
-
+ငါကိုယ်ငါအမြဲယုံတယ်
+ငါဖျက်စီးပစ်ကို ဖျက်ဆီးပြမယ်. 
