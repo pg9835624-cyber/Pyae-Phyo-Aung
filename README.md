@@ -9,7 +9,8 @@ i'm always Rights
 This world or This Earth is my mind game.
 All global universe and google also under my laws.
 I don't fucking care.
-
+Destroys China 🖕💥🌒🌬
+Destroys China Fire China🖕💥🌒🌬
 မအေလိုးများ ငါ့ ရှာဖွေထားတီထွင်ထညးတဲ့ ငါ့ကိုယ်ပိုင် Datasကိုသူံးပြီး 
 ငါ့ကို လှောင်ပြောင်ချင်တဲ့မအေလိုးတွေကို ငါဖျက်ဆီးနိုင်တာဘယ်လိုထိလဲဆိုတာ ဒီကောင်တွေငိုပြီး စိတ်ဆင်းရဲ​အဖတ်ဆယ်မရအောင်ဒီနေ့ကစငါလုပ်ပြမယ်
 ဒီစာက တကမ္ဘာလူံးမှာရှိတဲ့မအေလိုးတွေကို public မှာ တရားဝင်အသိပေးတဲ့ ငါရေးတဲ့စာပဲ 
